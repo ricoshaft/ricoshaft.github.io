@@ -1,0 +1,1 @@
+# ricoshaft.github.io
